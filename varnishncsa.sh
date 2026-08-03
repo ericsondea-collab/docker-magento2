@@ -1,2 +1,21 @@
 #!/bin/sh
 docker exec -it docker-magento2_varnish_1 varnishncsa
+´ffjijfflfpdkejejfknkopw´
+koejooffnjjdmdoljf frlw
+itfojfkfnfokdkpdjomfeo
+fjdkfvodfop fidkdjnnfoenfkmdinfmmtfjk
+kppowjnkfkdojriodkdfpd
+vsjdaljokdspdslnfspofódkdllss´fjdfk´s
+sjnlnppdsnpmpkld´kvsmidkkl
+ndjçsnkvndnlcdm
+jdosfnlkkdjfsknfdnnfdd k vpsdpojfssjkmds
+fspdosnvnspksokdsoif
+ddjjd
+fidkdjnnfoenfkmdinfmmtfjkojfejifeldmlf
+sjhsnmlfksskodsldrjwlksfksçkndkklçdirhnvlsl
+dsjdbkjkskdfkslsoidkjs
+dsjdbkjkskdfkslsoidkjsdjjvskpjfdkdwoojiewjnnf
+sjhsnmlfksskodsldrjwlksfksçkndkklçdirhnvlsl
+cssnksldksj ksmls vsmslslk
+sjnlnppdsnpmpkld´kvsmidkklssjsjsndpvos
+dsjdbkjkskdfkslsoidkjsdjjvskpjfdkdwoojiewjnnf
